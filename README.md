@@ -1,2 +1,2 @@
 # koduleht
-yo smegmad
+See koduleht on mõeldud fortniteile.
